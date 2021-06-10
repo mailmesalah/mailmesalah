@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Sely
+- 👀 I’m interested in research works
+- 🌱 I’m currently doing BSc (Hons) Computing at Portsmouth University
+- 📫 Email me on mailmesalah@gmail.com
