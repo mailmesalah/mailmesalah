@@ -2,3 +2,7 @@
 - 👀 I’m interested in research works
 - 🌱 I’m currently doing BSc (Hons) Computing at Portsmouth University
 - 📫 Email me on mailmesalah@gmail.com
+- 🏴‍☠️ Better late than never. Yeah, i have been in this field since 2008 after my Diploma in Computer Engineering, mostly as a freelancer in persuit of changing the world, just to realize that, I am only a link of the chain, yet to be completed. May be never.
+- 🧑‍🎓 What is there to lose to dream, when dreams were the ones showed me the designs and each time, it has only gotten better and clearer yet it has only proven to be unreachable. 
+- 💨 I hope, In the end, at the least, what infront of me is more clearer than today. 
+- 🌈 For which the beautiful end is only created by, How well I was honest with my path. 
